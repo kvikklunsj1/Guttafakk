@@ -1,2 +1,0 @@
-# Guttafakk
-BlueTrip
